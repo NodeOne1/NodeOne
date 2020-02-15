@@ -1,5 +1,5 @@
 # NodeOne
-Komodo NN
+VOTE2020 address: RNjeQcneBWgkPFk1stynJWN9gnNLpgBzud
 
 I am running for the North American region.
 
